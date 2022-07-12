@@ -3,7 +3,7 @@
 
 ## ❌NOT FOR HACKERS.
 <br>✔YES !!!! to - Cyber Security Engineer, Cyber Security Analyst, Penetration Tester, Information Security Engineer, Information
-Security Analyst etc Fun Fact - all same with different titles for Job)</br>
+Security Analyst etc Fun Fact - (all same with different titles for Job)</br>
 </br>
 
 ###  Check at the end , we have added guidance for some practical based platforms like.
