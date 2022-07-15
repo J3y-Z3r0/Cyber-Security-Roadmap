@@ -7,3 +7,10 @@
 
 
 # <i><p align ="center"> Plz Wait, Update Soon... </p></i>
+
+<p align="center">
+  <a href="https://github.com/J3y-Z3r0"><img src="https://readme-typing-svg.herokuapp.com?size=25&color=0EF711&center=true&lines=Plz+Wait%2C+Update+Soon..."></a>
+</p>
+
+
+https://readme-typing-svg.herokuapp.com?size=25&color=0EF711&center=true&lines=Plz+Wait%2C+Update+Soon...
